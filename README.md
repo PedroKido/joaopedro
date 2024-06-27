@@ -10,4 +10,4 @@ Meu nome é João Pedro Kiddo
 
   johnlolagames2@gmail.com
   
-[](https://media1.tenor.com/m/zidP4SfxpGAAAAAd/aurora-aurora-aksnes.gif)
+![](https://pbs.twimg.com/profile_images/1577539043931430913/h6iRSjcc_200x200.jpg)
